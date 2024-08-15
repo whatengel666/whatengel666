@@ -8,14 +8,14 @@ hey
 
 i have depression
 i can't hurt myself
-yeh ik it's pain to kill myself but I don't want to kill myself so I can fix everything what my sister did to me I forgive her
+yeh ik it's pain to kill myself but I don't want to kill myself so I can fix everything what my sister did to me I forgive her -_-
 
 
 ┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
 
 
 free c+h
-I was lonely some time my friends went offline and i need someone who cares about me but not the weird people it makes me uncomfortable
+I was lonely some time my friends went offline and i need someone who cares about me but not the weird people it makes me uncomfortable, u can be my friend if u want! just keep talking to me so I can know ya ^_^
 
 
 ┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
@@ -23,13 +23,13 @@ I was lonely some time my friends went offline and i need someone who cares abou
 
 
 do not copy my pony I hate u
-I'll block u forever
+I'll block u forever >:/
 
 
 ┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
 
 
-dont ask me why i turned whisper to  "friends and party" because im scared if there's my haters or sm1 who makes fun of me
+dont ask me why i turned whisper to  "friends and party" because im scared if there's my haters or sm1 who makes fun of me :(
 
 
 ┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
