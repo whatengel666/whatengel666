@@ -2,8 +2,9 @@
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
 hey
 
+read to know about me❗
 
-┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
+┈┈┈┈․° ☣ °․┈┈┈┈
 
 
 i have depression
