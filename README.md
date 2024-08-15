@@ -1,10 +1,11 @@
 <img
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
-hey
+                 hey
 
 read to know about me❗
 
-┈┈┈┈․° ☣ °․┈┈┈┈
+
+──────⊹⊱✫⊰⊹──────
 
 
 i have depression
@@ -22,6 +23,9 @@ I was lonely some time my friends went offline and i need someone who cares abou
 ┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
 
 
+
+do not cover me
+stop it it's very annoying >`_ˊ<!!
 
 do not copy my pony I hate u
 I'll block u forever >:/
