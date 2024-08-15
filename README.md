@@ -1,6 +1,16 @@
 <img
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
-Oc
+hey
+
+i have depression
+
+free c+h
+
+do not copy
+
+dont ask me why i turned whisper to  "friends and party" because im scared if there's my haters or sm1 who makes fun of me
+
+Oc:
 <img
 src="https://c10.patreonusercontent.com/4/patreon-media/p/post/110060014/a80757bdb0834a4ba46d9eca12ab96bd/eyJ3Ijo2MjB9/1.png?token-time=1724889600&token-hash=qy_TH0SFe6WkW-qVD6H0Ia0PPL-_wDtqa5JSZZQ6ADU%3D" /></p>
 
