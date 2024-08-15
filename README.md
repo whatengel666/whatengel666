@@ -3,12 +3,15 @@ src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif
 hey
 
 i have depression
+i can't hurt myself
 
 free c+h
 
 do not copy
 
 dont ask me why i turned whisper to  "friends and party" because im scared if there's my haters or sm1 who makes fun of me
+
+interesting: Yabujin, DreamCore, WeirdCore, CuteCore, BreakCore, Gore
 
 Oc:
 <img
