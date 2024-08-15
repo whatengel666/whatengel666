@@ -2,16 +2,44 @@
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
 hey
 
+
+┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
+
+
 i have depression
 i can't hurt myself
+yeh ik it's pain to kill myself but I don't want to kill myself so I can fix everything what my sister did to me I forgive her
+
+
+┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
+
 
 free c+h
+I was lonely some time my friends went offline and i need someone who cares about me but not the weird people it makes me uncomfortable
 
-do not copy
+
+┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
+
+
+
+do not copy my pony I hate u
+I'll block u forever
+
+
+┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
+
 
 dont ask me why i turned whisper to  "friends and party" because im scared if there's my haters or sm1 who makes fun of me
 
-interesting: Yabujin, DreamCore, WeirdCore, CuteCore, BreakCore, Gore
+
+┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
+
+
+interesting: 
+
+Yabujin, DreamCore, WeirdCore, CuteCore, BreakCore, Gore, KawaiiCore, Frutiger Aero, Y2k
+
+✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 Oc:
 <img
