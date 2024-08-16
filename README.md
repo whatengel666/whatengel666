@@ -20,6 +20,11 @@ free c+h
 I was lonely some time my friends went offline and i need someone who cares about me but not the weird people it makes me uncomfortable, u can be my friend if u want! just keep talking to me so I can know ya ^_^
 
 
+whisper 2 int
+u can sit with me if u want
+
+
+
 ┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
 
 
