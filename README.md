@@ -1,3 +1,9 @@
+im not fine some time
+
+im mad
+
+and in bad mood
+
 <img
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
                  hey
