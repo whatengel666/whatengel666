@@ -1,8 +1,4 @@
-im not fine some time
-
-im mad
-
-and in bad mood
+i dont want to have problem
 
 <img
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
