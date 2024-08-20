@@ -1,4 +1,4 @@
-i dont want to have problem
+like and subscribe
 
 <img
 src="https://adriansblinkiecollection.neocities.org/dividers/cautiondivider2.gif" /></p>
