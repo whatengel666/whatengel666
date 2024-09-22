@@ -1,5 +1,5 @@
-hi
+           * + .  Hello  . + *
 
-16yo
+  . + 16yo  /  Male  / Gay😦
 
-read -> https://rentry.co/whatengel666
+read more -> https://rentry.co/whatengel666
