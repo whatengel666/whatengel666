@@ -1,14 +1,12 @@
-(follow me whatever u want but I'm not online on GitHub)
+(follow me whatever u want but I'm not online on GitHub, I just checked idfk)
 
 Hey guys
 
-I'm not on pt anymore just meet me at Roblox :3
+I'm not on pt anymore just meet me at Roblox
 
-user: whatcalvin771 ✩
+add me to be friends (discord: whatengel666)
 
-add me if u want to ask me anything -> discord: whatengel666
-
-about ponytown? I don't want to talk about it
+about ponytown? hell nah I don't want to talk about it
 
 oh my friends if u see that im always offline so that means im SLEEPING
 
